@@ -1,6 +1,7 @@
 # Summary
 
-## Zenevich Elisei Alexandrovich
+## FIO
+Zenevich Elisei Alexandrovich
 
 ## Date and place of birth: 
 August 10, 1999, Minsk
@@ -10,7 +11,7 @@ single, no children
 
 ## Contact information: 
 Address Minsk, st. Yankee Brylya 30, apt. 225
-Phone: 375 (29) -852-49-60 (mobile) 
+Phone: 375(29)-852-49-60 (mobile) 
 E-mail: ezenevich99@gmail.com
 
 ## Professional interests:
@@ -29,7 +30,7 @@ E-mail: ezenevich99@gmail.com
 2014 - Brass Band Festival dedicated to the Second World War. II place.
 2014 - School Regional Olympiad on the history of Belarus, II place.
 
-## Work experience"
+## Work experience:
 None.
 
 ## Practice:
